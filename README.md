@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **elvinva2271@gmail.com**
 
-- ⚡ Fun fact **TYPEWRITTER only word can be write using one row of the keyboard**
+- ⚡ Fun fact **TYPEWRITTER is the only word can be write using one row of the keyboard**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
